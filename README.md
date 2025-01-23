@@ -1,6 +1,6 @@
 
 
-The journey of revelation led me to explore numerous research papers and delve into various resources on the internet, collecting a plethora of information that fueled my ideas about going beyond the boundaries of the known universe.
+i am workin to build infrastructure that can utilize qntm cumputation power and produce highly innnovating material science ,biological science and physics theories
 
 
 Contact Me
@@ -11,4 +11,4 @@ _Email:_
 Feel free to drop me an email at [Mukulpal@hotmail.com], and I'll do my best to respond as soon as possible.
 
 _Social Media:_
-Connect with me on social media as well. Find me on [Twitter](https://twitter.com/Makul_0x) or [Instagram](https://www.instagram.com/makul0x).
+Connect with me on social media as well. Find me on [Twitter](https://twitter.com/mk0dz) or [Instagram](https://www.instagram.com/makul0x).
